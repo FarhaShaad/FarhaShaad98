@@ -32,7 +32,7 @@ Also familiar with: `HTML` | `CSS` | `JavaScript` | `Git & GitHub`
 ---
 
 ## 📫 Let’s Connect
-- 📬 Email: neha.farha43@gmail.com  
+- 📬 Email: shaadfarha98@gmail.com  
 
 ---
 
